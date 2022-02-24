@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @delano-lourenco
-- Main Account @3ddelano
+- Main Account [@3ddelano](https://github.com/3ddelano)
